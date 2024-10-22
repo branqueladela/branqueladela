@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate em cuidar do mundo
 - 📫 How to reach me ;gmail:emanuelly.otilio@ESCOLA.PR.GOV.BR
 - 😄 Pronouns:?
-- ⚡ Fun fact:N TENHO
+- ⚡ Fun fact: EU SOU MUITO AMOROSA
 
 <!---
 branqueladela/branqueladela is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
