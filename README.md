@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @branqueladela
 - 😍 I’m interested in a person
 - 🌱 I’m currently learning about agriculture
-- ❤️‍🩹 #I’m looking to collaborate take care of me#
+- ❤️‍🩹 I’m looking to collaborate take care of me
 - 📫 gmail:emanuelly.otilio@ESCOLA.PR.GOV.BR
 - ♕ name:*"emanuelly Fernanda Granemann Otilio"*
 - ⚡ phrase:*"I AM VERY LOVING, I am in 1st year of high school I love plants
