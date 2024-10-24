@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning about agriculture
 - ❤️‍🩹 I’m looking to collaborate take care of me
 - 📫 gmail:emanuelly.otilio@ESCOLA.PR.GOV.BR
-- ♕ name:*"emanuelly Fernanda Granemann Otilio"*
+- ♕ name:*"emanuelly "*
 - ⚡ phrase:*"I AM VERY LOVING, I am in 1st year of high school I love plants
 "*
 <!---
